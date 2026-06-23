@@ -1,4 +1,4 @@
-# Olá, eu sou Gabriel Natan 👋
+# Olá, eu sou Gabriel Andrade 👋
 
 📫 Contato:
 - LinkedIn: https://www.linkedin.com/in/gabriel-andrade-b76710292/
